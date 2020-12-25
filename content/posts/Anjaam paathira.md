@@ -1,0 +1,6 @@
+---
+title: 'anjaam paathira'
+date: 2020-12-18T17:18:05+01:00
+draft: false
+---
+<p><a href="https://mx.tpro.ga/player?id=c9491655ccea80b63ed5fbc85019c227&amp;type=movie">&nbsp;</a></p<p><a href="https://mx.tpro.ga/player?id=c9491655ccea80b63ed5fbc85019c227&amp;type=movie">&nbsp;</a></p><div><div class="separator" style="clear: both; text-align: center;"><span style="margin-left: 1em; margin-right: 1em;"><a href="https://mx.tpro.ga/player?id=c9491655ccea80b63ed5fbc85019c227&amp;type=movie"><img border="0" data-original-height="585" data-original-width="1080" src="https://1.bp.blogspot.com/-VruhbPGy3o0/X8OO_H7i1uI/AAAAAAAAALs/pOY-v5noqYwH8337pirCwS2OYYPWH7YawCLcBGAsYHQ/s320/20201129_174001.jpg" width="320" /></a></span></div><p></p><p><a href="https://mx.tpro.ga/player?id=c9491655ccea80b63ed5fbc85019c227&amp;type=movie">🎥 Anjaam Pathiraa&nbsp; (Crime)</a></p><p><a href="https://mx.tpro.ga/player?id=c9491655ccea80b63ed5fbc85019c227&amp;type=movie"><br /></a></p><p><a href="https://mx.tpro.ga/player?id=c9491655ccea80b63ed5fbc85019c227&amp;type=movie">📑 Anwar is a consulting criminologist who helps the Kerala Police every now and then. When a string of serial killings happen in quick succession, he must race against time to find the one responsible.</a></p>
